@@ -1,1 +1,0 @@
-This is Jejo's first project
